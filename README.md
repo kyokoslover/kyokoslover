@@ -6,4 +6,4 @@
 
 read my rentry for full information ^_^!!
 
-(holy tysm for 50+ followerz!! ilysmm)
+(btw tysm for 50+ followerz!! ilysmm)
