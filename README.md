@@ -4,3 +4,4 @@
 
 ![image](https://github.com/user-attachments/assets/e1f3d15c-76b9-4d17-a10f-a7f6832df6f3)
 
+read my rentry for full information ^_^!!
