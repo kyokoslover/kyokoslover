@@ -6,4 +6,4 @@
 
 read my rentry for full information ^_^!!
 
-(btw tysm for 50+ followerz!! ilysmm)
+visit my old (if u rlly want) >> [old github](https://github.com/traumatictoe) / [patreon](https://www.patreon.com/kaydiez)
