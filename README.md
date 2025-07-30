@@ -6,4 +6,4 @@
 
 rentry rework soon ^_^
 
-visit my old (if u rlly want) ![image](https://64.media.tumblr.com/4dd8244dee8f3a5708c6cb156317b766/db7ce6708c01e3ab-73/s75x75_c1/58e35ae3e46819280697c35bcfdb4885a407228e.gifv) [old github](https://github.com/traumatictoe) / [patreon](https://www.patreon.com/kaydiez)
+visit my old (if u rlly want) ![image](https://64.media.tumblr.com/7491f85b89601521803658f2ef7da389/f720cbb9b57884be-5a/s75x75_c1/788c52db061d0e80cd0d27e6b873dccaebd9f643.gifv) [old github](https://github.com/traumatictoe) / [patreon](https://www.patreon.com/kaydiez)
