@@ -1,9 +1,9 @@
-![image](https://pbs.twimg.com/media/GnOyqlUWwAAGMcE?format=jpg&name=large)
+<div align="center">
 
-<div align="center"> art by Kyokoblocktales on twt!!
+<h6 align="center"> layout by yourdarlingness ( tumblr ) ! </h6> 
 
-![image](https://private-user-images.githubusercontent.com/170511636/359742172-fef6d240-7b0a-405e-a502-e8f8e976b702.gif?jwt=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NTM3MDM5NTYsIm5iZiI6MTc1MzcwMzY1NiwicGF0aCI6Ii8xNzA1MTE2MzYvMzU5NzQyMTcyLWZlZjZkMjQwLTdiMGEtNDA1ZS1hNTAyLWU4ZjhlOTc2YjcwMi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUwNzI4JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MDcyOFQxMTU0MTZaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1kZWE0ZTgzZmNjMmEwMDllMDE1NmU4YTVhYjQzZmFkYWJhNjQ5NWNjNDc2NzNmZWJjZmQ1MTBjNTVlODgzMDhhJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.RsNXxThYi1FNOaJ3T0ZfJsh-P9G1-JzM-px-F93t20g)
+![image](https://64.media.tumblr.com/96de19f6c17c2192e0207e43777d922f/5a214219f273f36a-26/s1280x1920/723cfb338bcbff2261e212b7b6c16e478421090a.pnj)
 
-read my rentry for full information ^_^!!
+rentry rework soon ^_^
 
-visit my old (if u rlly want) >> [old github](https://github.com/traumatictoe) / [patreon](https://www.patreon.com/kaydiez)
+visit my old (if u rlly want) ![image](https://64.media.tumblr.com/4dd8244dee8f3a5708c6cb156317b766/db7ce6708c01e3ab-73/s75x75_c1/58e35ae3e46819280697c35bcfdb4885a407228e.gifv) [old github](https://github.com/traumatictoe) / [patreon](https://www.patreon.com/kaydiez)
