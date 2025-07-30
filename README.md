@@ -1,8 +1,8 @@
 <div align="center">
 
-<h6 align="center"> layout by yourdarlingness ( tumblr ) ! </h6> 
+<h6 align="center"> layout by stomachbooks ( tumblr ) ! </h6> 
 
-![image](https://64.media.tumblr.com/96de19f6c17c2192e0207e43777d922f/5a214219f273f36a-26/s1280x1920/723cfb338bcbff2261e212b7b6c16e478421090a.pnj)
+![image](https://64.media.tumblr.com/20ea850feff0bc305f3f975f08c61a90/1d0a80f02f33a668-93/s1280x1920/332c836b3a55b410b7bc87408b607c18cf857d7b.gifv)
 
 rentry rework soon ^_^
 
