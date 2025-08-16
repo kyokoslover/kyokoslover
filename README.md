@@ -1,8 +1,8 @@
 <div align="center">
 
-<h6 align="center"> layout by stitchedlove ( tumblr ) ! </h6> 
+<h6 align="center"> layout by close-2-me ( tumblr ) ! </h6> 
 
-![image](https://64.media.tumblr.com/e2a92729e52519e39d2735997c71e64b/1d9360520e65c4b7-73/s1280x1920/3c0060d7ed92de161719a33d7d8c10502f19954a.gifv)
+![image](https://64.media.tumblr.com/a2aad8aef995c07019fe0f995b63402f/3b24651c682d5e94-87/s2048x3072/aa66a2aa5ac6118216ba4430f10d0787cb4c8308.pnj)
 
 ⠀⠀⠀⠀❜⠀⠀⠀⠀ 🐚
 
