@@ -6,6 +6,6 @@
 
 ⠀⠀⠀⠀❜⠀⠀⠀⠀ 🐚
 
-⠀ ⠀⠀⠀⠀⠀⠀⠀ ☆ ⠀⠀⠀
+◜⠀ ⠀⠀⠀⠀⠀⠀⠀ ☆ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀◞
 
-[new rentry](https://rentry.co/pr3tiesprincess)⠀ ⠀ ![image](https://64.media.tumblr.com/7491f85b89601521803658f2ef7da389/f720cbb9b57884be-5a/s75x75_c1/788c52db061d0e80cd0d27e6b873dccaebd9f643.gifv)⠀ ⠀ [atabook](https://bobettcarolynne.atabook.org/)
+[new rentry](https://rentry.co/pr3tiesprincess)⠀ ⠀ ✦⠀ ⠀ [atabook](https://bobettcarolynne.atabook.org/)
